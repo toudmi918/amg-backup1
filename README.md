@@ -19,7 +19,7 @@ Wafacash
 
 Hosting MTA Sa Plans 
 
-https://images-ext-1.discordapp.net/external/Epn0-GTMsgLilmOv2FKKQ7IwZsiH8EidHgPpUOej3yw/https/g.top4top.io/p_3192616wn1.png?format=webp&quality=lossless
+https://images-ext-1.discordapp.net/external/Epn0-GTMsgLilmOv2FKKQ7IwZsiH8EidHgPpUOej3yw/https/g.top4top.io/p_3192616wn1.png
 
 
 
